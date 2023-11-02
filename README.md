@@ -1,4 +1,4 @@
-### Hi there 👋
+### hopelessly mid and forever afraid of the end
 
 <!--
 **fafu-10/fafu-10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
