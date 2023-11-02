@@ -1,6 +1,6 @@
 ### hopelessly mid and forever afraid of the end
 
-![til](https://media1.giphy.com/media/xT77XUw1XMVGIxgove/giphy.gif?cid=ecf05e47kd2qzxmud3y6thfhxp2anja0l6nklbwqaz7j44nb&ep=v1_gifs_related&rid=giphy.gif&ct=g)
+![til](https://im3.ezgif.com/tmp/ezgif-3-dcaa462fcf.gif)
 <!--
 **fafu-10/fafu-10** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
